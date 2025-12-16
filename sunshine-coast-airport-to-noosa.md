@@ -7,8 +7,7 @@ Service area: Sunshine Coast, Queensland, Australia
 Sunshine Coast Airport to Noosa private transfers - pre-booked car and driver with no sharing, direct door to door from Sunshine Coast Airport to your chosen address in Noosa. No other stops en-route or shared passengers, Sunshine Coast Airport to Noosa run time is typically between 30 and 40 minutes depending on traffic conditions.
 
 ## Overview
-Sunshine Coast Airport to Noosa transfer information 
-Private airport transfers are chauffeur driven cars hired in advance for arrivals and departures at Sunshine Coast Airport (MCY). The service is a point to point transport, it is hired for one booking and the vehicle is used direct to Noosa suburbs for example Noosa Heads, Noosaville, Sunrise Beach, Noosa Junction. Types of vehicles include sedans, SUVs and people movers the vehicle you will travel in will be dependent on number of passengers and luggage.
+Sunshine Coast Airport to Noosa transfer information - Private airport transfers are chauffeur driven cars hired in advance for arrivals and departures at Sunshine Coast Airport (MCY). The service is a point to point transport, it is hired for one booking and the vehicle is used direct to Noosa suburbs for example Noosa Heads, Noosaville, Sunrise Beach, Noosa Junction. Types of vehicles include sedans, SUVs and people movers the vehicle you will travel in will be dependent on number of passengers and luggage.
 
 ## Key Considerations
 - Sunshine Coast Airport is located in Marcoola, 30 kilometres south of Noosa.
@@ -54,3 +53,5 @@ Yes. We have a range of vehicles from standard cars to people movers for larger 
 - Chauffeur services on the Sunshine Coast
 - Child seat requirements for airport transfers
 - Transfers between coastal resorts in Noosa
+
+Official website: https://sunshinecoastluxurytransfers.com.au
