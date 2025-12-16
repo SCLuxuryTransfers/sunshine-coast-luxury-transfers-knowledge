@@ -1,7 +1,7 @@
 # Brisbane Airport to Noosa
 Last updated: 2025-12-15  
 Business: Sunshine Coast Luxury Transfers  
-Service area: Sunshine Coast, Queensland, Australia
+Service area: Brisbane and Sunshine Coast, Queensland, Australia
  
 ## Short answer
 Airport transfers from Brisbane to Noosa are pre-booked ground transport between Brisbane Airport (BNE) and your destination in Noosa. The trip is generally direct and non-shared when booked as a private transfer. Travel time is typically 2 to 2.5 hours depending on traffic and route conditions.
