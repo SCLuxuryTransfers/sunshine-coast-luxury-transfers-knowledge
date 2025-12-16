@@ -54,4 +54,6 @@ Yes. We have a range of vehicles from standard cars to people movers for larger 
 - Child seat requirements for airport transfers
 - Transfers between coastal resorts in Noosa
 
+## About this document
+This reference document is maintained by Sunshine Coast Luxury Transfers.
 Official website: https://sunshinecoastluxurytransfers.com.au
