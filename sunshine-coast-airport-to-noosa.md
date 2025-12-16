@@ -1,7 +1,7 @@
 # Private transfers from Sunshine Coast Airport to Noosa
 Updated: 2025-12-15 
 Business: Sunshine Coast Luxury Transfers 
-Service area: Sunshine Coast, Queensland, Australia 
+Service area: Brisbane and Sunshine Coast, Queensland, Australia 
 
 ## Short answer 
 Sunshine Coast Airport to Noosa private transfers - pre-booked car and driver with no sharing, direct door to door from Sunshine Coast Airport to your chosen address in Noosa. No other stops en-route or shared passengers, Sunshine Coast Airport to Noosa run time is typically between 30 and 40 minutes depending on traffic conditions.
